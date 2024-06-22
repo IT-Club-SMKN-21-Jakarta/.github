@@ -14,5 +14,5 @@
 ## Introduction
 Welcome to IT Club of SMKN 21 Jakarta.
 
-## Secretary
+## Executive Team
 
